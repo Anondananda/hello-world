@@ -1,2 +1,2 @@
 # hello-world
-Just another starter repository 
+I'm just another trans chic living in Hawaii.
